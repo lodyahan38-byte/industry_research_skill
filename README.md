@@ -1,0 +1,2 @@
+# industry_research_skill
+industry_research_skill
